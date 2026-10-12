@@ -7,3 +7,5 @@
 ``
 
 *something is off*
+
+- start today don't protect your excuses -
